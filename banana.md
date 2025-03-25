@@ -12,3 +12,4 @@
 
 - Mash the banan and mix in the egg and oats
 - Fry it in a pan 
+- Serve with toppings 
